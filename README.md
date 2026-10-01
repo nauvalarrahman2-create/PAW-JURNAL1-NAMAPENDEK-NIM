@@ -1,0 +1,2 @@
+# PAW-JURNAL1-NAMAPENDEK-NIM
+Praktikum
